@@ -1,1 +1,1 @@
-# hightechhh
+# hightech
